@@ -1,10 +1,12 @@
-# presentacion-
+# Sobre mí
 
-- Escriban presentación sobre ustedes.
-- Suban la presentación a Git.
-- Realicen algun cambio.
-- Suban los nuevos cambios.
-- Compartan el link por discord
-- Hagan algun comentario sobre el repositorio de algun otro compañere. Al menos 2.
+- Me llamo Gian Marco  > Sí, mis viejos se lucieron con el segundo nombre
+- Tengo 21 años
+- Me egrese en 2021 como Técnico en Electrónica
+- En este momento solamente estudio, aunque planeo laburar en un futuro cercano
+- Estoy en mi tercer año de carrera, perteneciendo al plan 2008
 
-Ya saben usar git!
+
+
+
+
