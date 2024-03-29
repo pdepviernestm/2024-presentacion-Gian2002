@@ -1,6 +1,6 @@
 # Sobre mí
 
-- Me llamo Gian Marco  > Sí, mis viejos se lucieron con el segundo nombre
+- Me llamo Gian Marco   >Sí, mis viejos se lucieron con el segundo nombre
 - Tengo 21 años
 - Me egrese en 2021 como Técnico en Electrónica
 - En este momento solamente estudio, aunque planeo laburar en un futuro cercano
@@ -17,7 +17,7 @@
 - De vez en cuando veo anime, leo manga, leo algún comic o veo alguna que otra película
 
 
-< La suerte no es fruto de la casualidad. Es una característica básica que sólo alcanzan aquellos que actúan según sus necesidades.  Blue Lock
+>La suerte no es fruto de la casualidad. Es una característica básica que sólo alcanzan aquellos que actúan según sus necesidades.  Blue Lock
 
 
 
