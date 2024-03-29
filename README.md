@@ -2,7 +2,7 @@
 
 - Me llamo Gian Marco (mis viejos se lucieron con el segundo nombre)
 - Tengo 21 años
-- Me egrese en 2021 como Técnico en Electrónica
+- Me egresé en 2021 como Técnico en Electrónica
 
   ![Imagen de WhatsApp 2024-03-29 a las 17 02 38_387ebfbb (1)](https://github.com/pdepviernestm/2024-presentacion-Gian2002/assets/82734096/b8719a8c-6fb6-48a3-b997-6b4a232b5399)
 
@@ -15,8 +15,9 @@
 - Hice tenis unos años
 - Hice calistenia por un año
 - Actualmente únicamente voy al gimnasio 6 días de la semana (llevo 2 años)
-- Suelo leer libros (actualmente estoy leyendo Dune, recomendado)
-- A veces juego un futbol 5 con mis amigos
+- Probablemente el año que viene practique o Muay Thai o pruebe Kraf Magá
+- Suelo leer libros (actualmente estoy leyendo Dune, lo recomiendo) y mi saga favorita diria que es Shadowhunters o Percy Jackson
+- A veces juego un fútbol 5 con mis amigos
 - De vez en cuando veo anime, leo manga, leo algún comic o veo alguna que otra película
 - Escucho de todo, pero mi artista favorito es Wos
 - Escucho freestyle desde el 2019, donde conoci a Wos por su canción Canguro e investigué de dónde vino
