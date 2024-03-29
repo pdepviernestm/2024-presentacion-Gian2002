@@ -21,11 +21,11 @@
 - Escucho de todo, pero mi artista favorito es Wos
 - Escucho freestyle desde el 2019, donde conoci a Wos por su canción Canguro e investigué de dónde vino
 
->Dice que me gana, yo no lo escucho. Si me gana igual, no me va a cambiar mucho. Aunque pierda, esta gente se va llena de orgullo. Esa es la diferencia entre mi país y el tuyo.    Wos Final Red Bull Internacional 2018
+>Dice que me gana, yo no lo escucho. Si me gana igual, no me va a cambiar mucho. Aunque pierda, esta gente se va llena de orgullo. Esa es la diferencia entre mi país y el tuyo. - Wos Final Red Bull Internacional 2018
 
 
 
->La suerte no es fruto de la casualidad. Es una característica básica que sólo alcanzan aquellos que actúan según sus necesidades.    Blue Lock
+>La suerte no es fruto de la casualidad. Es una característica básica que sólo alcanzan aquellos que actúan según sus necesidades. - Blue Lock
 
 # Maca
 
